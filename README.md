@@ -15,3 +15,7 @@ https://www.youtube.com/shorts/YLo6kAh4_Zc
 https://www.youtube.com/shorts/teS2jG5wViU
 
 https://www.youtube.com/shorts/XY9IU8XfYDo
+
+https://www.youtube.com/shorts/sRpGIsGnMc8
+
+https://www.youtube.com/shorts/WnQX0CE2STc
